@@ -1,4 +1,4 @@
 # Fedotov Oleg
 
 ### 📱 iOS Developer
-✉️  trevor706@gmail.com 
+📨  trevor706@gmail.com 
